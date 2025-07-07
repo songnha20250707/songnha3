@@ -22,4 +22,4 @@
 
 我们承诺为您提供一个安全、稳定、快速的免费观看平台，让您随时随地畅享高清、日本AV视频，无需付费，无广告打扰。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/songnha20250707/songnha3 ）</span>
